@@ -4,7 +4,7 @@ The-upper-and-lower-deivices-of-heaven-and-earth-reiki
 
 Author： ……ChenYanling_LinFanChao(amitabha):
 
-作者：……陈燕玲_林凡超(佛世尊):
+作者：……陈燕玲_林凡超:
 
 公开于 2020-12-03 23:30　
 
